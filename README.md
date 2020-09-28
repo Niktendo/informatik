@@ -1,1 +1,0 @@
-# informatik.github.io
